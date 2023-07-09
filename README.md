@@ -5,3 +5,5 @@ what was added?
 +Custom Messege 
 +Custom Speed
 Hope you guys liked the update :)
+<LINK BELOW>
+https://metas-spammer-v2.pages.dev/
